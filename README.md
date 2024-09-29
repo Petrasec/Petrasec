@@ -26,7 +26,7 @@ We’d love to hear from you!
 - **Email**: [contact@petrasec.com](mailto:contact@petrasec.com)
 - **Twitter**: [@PetrasecTech](https://twitter.com/PetrasecTech)
 - **LinkedIn**: [Petrasec](https://linkedin.com/company/petrasec)
-- **Instagram**: [@PetrasecOfficial](https://instagram.com/PetrasecOfficial)
+- **Instagram**: [@PetrasecOfficial](https://www.instagram.com/petrasec2024?igsh=MXQ5anhmOGoyYmI5Mw%3D%3D&utm_source=qr)
 - **Facebook**: [Petrasec](https://facebook.com/Petrasec)
 
 ## 😄 Pronouns

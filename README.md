@@ -23,8 +23,7 @@ We’re eager to partner on:
 
 ## 📫 Get in Touch
 We’d love to hear from you!
-- **Email**: [contactpetrasec2024@gmail.com](mailto:contact@petrasec2024@gmail.com)
-- **Twitter**: [@PetrasecTech](https://twitter.com/PetrasecTech)
+- **Email**: [contact@petrasec2024@gmail.com](mailto:contact@petrasec2024@gmail.com)
 - **LinkedIn**: [Petrasec](https://linkedin.com/company/petrasec)
 - **Instagram**: [@PetrasecOfficial](https://www.instagram.com/petrasec2024?igsh=MXQ5anhmOGoyYmI5Mw%3D%3D&utm_source=qr)
 - **Facebook**: [Petrasec](https://facebook.com/Petrasec)
